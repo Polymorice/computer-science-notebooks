@@ -1,0 +1,1 @@
+This ia a collection of notes on various topics, from books and lectures, which are grouped into directories. The purpose of taking and posting notes is mainly for my own practice and repetition, but if you find the notes are useful, feel free to use them to aid your study.
